@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @IvyLuphotography
-- 👀 I’m interested in phography
+- 👀 I’m interested in landscape phography
 - 🌱 I’m currently learning AI painting 
 - 📫 How to reach me:my instagram :ivyLuphotography
 
